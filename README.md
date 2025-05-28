@@ -1,4 +1,4 @@
-# **Hi everyone, my name is Guilherme but most of people call me Drago** :raising_hand:
+# **Hi everyone, my name is Guilherme but most of people call me Drago** :muscle:
 ## Welcome to my Github profile (It's a little empty rigth now, but i will improve) 
 
 ## About me: 
